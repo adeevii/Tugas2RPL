@@ -1,1 +1,2 @@
-# Tugas2RPL
+Nama  : Ade evi
+Nim   : D0223043
